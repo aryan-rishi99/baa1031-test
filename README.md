@@ -3,6 +3,7 @@
 GitHub is:
 
 -Amazing
+
 -Fun
 
 **And the Lecturer as well**
