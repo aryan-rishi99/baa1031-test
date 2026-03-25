@@ -8,4 +8,5 @@ GitHub is:
 
 **And the Lecturer as well**
 
-# https://www.dcu.ie/sites/default/files/styles/max_1300x1300/public/dcu_business_school_editor/2025-01/professional_picture.jpeg?itok=YKeIOr-I
+# ![school feeding](https://github.com/user-attachments/assets/07947dfa-12e9-49d8-85a2-2af7968691d9)
+
